@@ -2,7 +2,7 @@
 
 You might know me by various names, and that's okay.
 
-Graduating May 2023... soon enough.
+Graduated May 2023 - yay!
 
 ## My projects
 
